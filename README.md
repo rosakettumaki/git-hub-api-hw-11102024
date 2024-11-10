@@ -1,4 +1,4 @@
-# This is my very well done homework!! <3<3<3<3
+# This is my very well done homework!! <333
 
-Hope I get some good grades for this! :D
+Hope I get some good grades for this! 
  
